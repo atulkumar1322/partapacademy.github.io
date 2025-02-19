@@ -1,0 +1,1 @@
+# partapacademy.github.io
